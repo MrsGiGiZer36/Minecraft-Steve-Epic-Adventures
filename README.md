@@ -1,4 +1,4 @@
-# Minecraft-Steve-Epic-Adventures
+# Minecraft Steve Epic Adventures
 Добро пожаловать в этот сайт, где будут интересные сливы на 1.1
 на данный момент их нет....
 
